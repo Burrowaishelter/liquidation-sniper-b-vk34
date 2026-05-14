@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ultimate liquidation sniper bot | cross-margin + grid-trading, the #1 liquidation sniper bot. Includes cross-margin and grid-trading for a smoother and
 
 
 
